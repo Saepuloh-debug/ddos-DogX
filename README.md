@@ -1,0 +1,2 @@
+# ddos-DogX
+DONT ABUSE FVCKING
